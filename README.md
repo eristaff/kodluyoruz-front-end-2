@@ -1,0 +1,1 @@
+# Bölüm Sonu Canavarı Çalışması Yapıldı
